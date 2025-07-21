@@ -1,4 +1,6 @@
 # tenthirty2
 
 
-some comments just to display branch copy
+ha iam here 
+what going on 
+  buddy
